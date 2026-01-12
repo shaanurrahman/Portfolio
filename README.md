@@ -24,11 +24,11 @@ I thrive in roles requiring **communication, persistence, empathy, and structure
 ## 🧠 Core Expertise & Skills
 
 ### 🔍 Market Research & Consulting
-- Primary Market Research (Qualitative & Quantitative)
-- Healthcare Expert Recruitment & Profiling
-- In-depth Interviews (IDIs) & Online Discussions
-- Insight Gathering & Client-Oriented Screening
-- Global Market Exposure (EU, US, APAC, Middle East)
+• Primary Market Research (Qualitative & Quantitative)  
+• Healthcare Expert Recruitment & Profiling  
+• In-depth Interviews (IDIs) & Online Discussions  
+• CATI & CAVI Survey Management (Questionnaire Handling, Fieldwork Coordination, Data Collection)  
+• Global Market Exposure (EU, US, APAC, Middle East)
 
 ### 🤝 Professional Skills
 - Stakeholder & Relationship Management
@@ -110,4 +110,4 @@ As I continue to grow in healthcare market research, I aim to:
 If you’re interested in healthcare research, consulting, or global market insights—or simply want to exchange perspectives—feel free to connect.
 
 📧 **Email:** shaanurrahman2018@gmail.com  
-🔗 **LinkedIn:**  <a href="https://www.linkedin.com/in/Yshaan-ur-rahman">LinkedIn</a>
+🔗 **🔗:**  <a href="https://www.linkedin.com/in/Yshaan-ur-rahman">LinkedIn</a>
