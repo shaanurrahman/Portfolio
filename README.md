@@ -110,4 +110,5 @@ As I continue to grow in healthcare market research, I aim to:
 If you’re interested in healthcare research, consulting, or global market insights—or simply want to exchange perspectives—feel free to connect.
 
 📧 **Email:** shaanurrahman2018@gmail.com  
-🔗 **LinkedIn:** https://www.linkedin.com/in/shaan-ur-rahman
+🔗 **LinkedIn:** https://www.linkedin.com/in/Yshaan-ur-rahman">LinkedIn</a>
+</p>
