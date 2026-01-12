@@ -1,7 +1,7 @@
 # 🧑‍💼 Shaan Ur Rahman | Healthcare Market Research Analyst
 
 <p align="center">
-  <img src="Photo.Png" alt="Shaan Ur Rahman" width="180"/>
+  <img src="Photo.png.png" alt="Shaan Ur Rahman" width="180"/>
 </p>
 
 <p align="center">
@@ -110,5 +110,5 @@ As I continue to grow in healthcare market research, I aim to:
 If you’re interested in healthcare research, consulting, or global market insights—or simply want to exchange perspectives—feel free to connect.
 
 📧 **Email:** shaanurrahman2018@gmail.com  
-🔗 **LinkedIn:** https://www.linkedin.com/in/Yshaan-ur-rahman">LinkedIn</a>
+🔗 **LinkedIn:**  <a href="https://www.linkedin.com/in/Yshaan-ur-rahman">LinkedIn</a>
 </p>
