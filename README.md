@@ -5,7 +5,7 @@
 </p>
 
 <p align="center">
-📍 India &nbsp;|&nbsp; 📧 <a href="mailto:shaanurrahman@gmail.com">shaanurrahman@gmail.com</a> &nbsp;|&nbsp;
+📍 New Delhi, India &nbsp;|&nbsp; 📧 <a href="mailto:shaanurrahman@gmail.com">shaanurrahman@gmail.com</a> &nbsp;|&nbsp;
 🔗 <a href="https://www.linkedin.com/in/Yshaan-ur-rahman">LinkedIn</a>
 </p>
 
