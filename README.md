@@ -1,8 +1,8 @@
-# 🧑‍💼 Shaan Ur Rahman | Healthcare Market Research Analyst
-
 <p align="center">
   <img src="Photo.png.png" alt="Shaan Ur Rahman" width="180"/>
 </p>
+
+# 🧑‍💼 Shaan Ur Rahman | Healthcare Market Research Analyst
 
 <p align="center">
 📍 New Delhi, India &nbsp;|&nbsp; 📧 <a href="mailto:shaanurrahman@gmail.com">shaanurrahman@gmail.com</a> &nbsp;|&nbsp;
