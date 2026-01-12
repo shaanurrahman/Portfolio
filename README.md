@@ -1,6 +1,3 @@
-<p align="top right">
-  <img src="assets/Photo.png.png" alt="Shaan Ur Rahman" width="180"/>
-</p>
 # 👨‍💼 Shaan Ur Rahman | Healthcare Market Research Analyst
 
 🎓 **B.Tech in Biotechnology (2024)**  
