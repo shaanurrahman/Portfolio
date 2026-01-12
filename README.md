@@ -111,4 +111,3 @@ If you’re interested in healthcare research, consulting, or global market insi
 
 📧 **Email:** shaanurrahman2018@gmail.com  
 🔗 **LinkedIn:**  <a href="https://www.linkedin.com/in/Yshaan-ur-rahman">LinkedIn</a>
-</p>
