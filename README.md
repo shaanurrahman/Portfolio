@@ -6,7 +6,7 @@
 
 <p align="center">
 📍 New Delhi, India &nbsp;|&nbsp; 📧 <a href="mailto:shaanurrahman@gmail.com">shaanurrahman@gmail.com</a> &nbsp;|&nbsp;
-🔗 <a href="[https://www.linkedin.com/in/Yshaan-ur-rahman](https://www.linkedin.com/in/shaan-ur-rahman)">LinkedIn</a>
+🔗 <a href="https://www.linkedin.com/in/shaan-ur-rahman">LinkedIn</a>
 </p>
 
 ---
@@ -110,4 +110,4 @@ As I continue to grow in healthcare market research, I aim to:
 If you’re interested in healthcare research, consulting, or global market insights—or simply want to exchange perspectives—feel free to connect.
 
 📧 **Email:** shaanurrahman2018@gmail.com  
-🔗 **Add me**  <a href="[https://www.linkedin.com/in/Yshaan-ur-rahman](https://www.linkedin.com/in/shaan-ur-rahman)">LinkedIn</a>
+🔗 **Add me**  <a href="https://www.linkedin.com/in/shaan-ur-rahman">LinkedIn</a>
