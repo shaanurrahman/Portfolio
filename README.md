@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="IMG_20260505_144501.png.PNG" alt="Shaan Ur Rahman" width="180"/>
+  <img src="IMG_20260505_144501.png" alt="Shaan Ur Rahman" width="180"/>
 </p>
 
 # 🧑‍💼 Shaan Ur Rahman | Healthcare Market Research Analyst
